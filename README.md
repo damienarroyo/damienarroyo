@@ -5,7 +5,7 @@
 *buhhh im too lazy to make this look all nice*
 
 
-![akito](https://64.media.tumblr.com/7687dad1f4921f442ab7e72deeed3bf1/99fc28d28dcb3893-35/s75x75_c1/f92b7762564b9061c2fca292d3aa36e0158f5b2a.gifv) ***manon***, *or any pony outfit i'm in* ! any pronouns. queer freakazoid, cringey yumeshipper. ![akito2](https://64.media.tumblr.com/e8819606f069076712194e38ad6d48fd/99fc28d28dcb3893-f4/s75x75_c1/059bc9f808e35dc9e5eb9da3ac57264037fd3c00.gifv)
+![lemon](https://64.media.tumblr.com/edd4e888d8a28708c69e499622c0dc1b/f2e797ecdfd63f20-1c/s75x75_c1/a236b44ef274758be9871e4937ccf450655a6cba.gifv) ***manon***, *or any pony outfit i'm in* ! any pronouns. queer freakazoid, cringey yumeshipper. ![lemon2](https://64.media.tumblr.com/2c8404ce1514799d3e20378c469ab9d7/f2e797ecdfd63f20-7c/s75x75_c1/822a0f34ae338cd81b27e161fb861372bdc56c06.gifv)
 
 ***i only want to be friends with people 15+.***
 
