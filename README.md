@@ -13,7 +13,7 @@ this was only made for ponytown - i primarily wear Gary Barkovitch (TLW), Antag/
 
 I don't usually sit in the same areas all the time - I play when my friends play, so you'll probably see me move around a lot.
 
-i hide a LOT of TMC / SIG ponies, i mean a LOT. its not your fault, i get really scared of meeting people who like things i like and might get too nervous about being confronted so i hide people. sorry ough
+i hide a LOT of TMC / SIG ponies, i mean a LOT. its not your fault, i get really scared of meeting people who like things i like and might get too nervous about being confronted so i hide people. sorry ough...i liek to think otherwise im a chill person, just dont run up to me ill pee myself id much prefer a whisper or a boop
 
 **links on the side in order - 1 about me, 2 characters I yume, 3 my atabook that i barely touch.**
 
